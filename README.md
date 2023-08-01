@@ -1,0 +1,1 @@
+# anuarbek_devopschool
